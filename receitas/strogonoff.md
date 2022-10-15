@@ -22,3 +22,5 @@
 4. Adicione os cogumelos, o ketchup e a mostarda.
 5. Incorpore o creme de leite e retire do fogo antes de ferver.
 6. Sirva com arroz branco e batata palha.
+
+fonte: <https://www.tudogostoso.com.br/receita/2462-strogonoff-de-frango.html>
